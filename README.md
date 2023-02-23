@@ -1,0 +1,1 @@
+# Devoir_Faridatou_NLP2
